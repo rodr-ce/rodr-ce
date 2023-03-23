@@ -2,4 +2,4 @@
 
 I'm a web developer based in Argentina 🇦🇷
 
-📌 [Linkedin](www.linkedin.com/in/rodrigocee/)
+📌 [Linkedin](www.linkedin.com/in/rodr-ce/)
